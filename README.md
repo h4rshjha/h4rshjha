@@ -6,5 +6,4 @@ in learning phase! will build soon
 
 FUN FACTS:
 • I Love Black Coffee
-• As My Profile Pic(I Love You Series)
 • Introvert Or Maybe Extrovert 
